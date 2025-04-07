@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning program
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me s1131329@syajh.tp.edu.tw
-- 😄 Pronouns: spiced corned egg
+- 😄 Pronouns: dreamer
 - ⚡ Fun fact: ...
 
 <!---
