@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @dreamer629432
 - 👀 I’m interested in computer
-- 🌱 I’m currently learning 53186833
+- 🌱 I’m currently learning program
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me s1131329@syajh.tp.edu.tw
-- 😄 Pronouns: ...
+- 😄 Pronouns: spiced corned egg
 - ⚡ Fun fact: ...
 
 <!---
